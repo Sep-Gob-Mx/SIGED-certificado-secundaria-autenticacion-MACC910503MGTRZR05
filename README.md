@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MACC910503MGTRZR05
+MACC910503MGTRZR05
